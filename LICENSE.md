@@ -1,4 +1,4 @@
-#  
+#  sol's rng updated Script is the best sol's rng Script, featuring esp and auto-farm. Safe and powerful for all your needs.
 
 
 
